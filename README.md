@@ -1,0 +1,1 @@
+# namo942.github.io
